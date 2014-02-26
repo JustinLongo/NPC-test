@@ -1,4 +1,4 @@
-##Next Policy Challenge!!!EXTREME!!!
+##Next Policy Challenge
 
 The ASU School of Public Affairs is leading the development of The Next Policy Challenge, a follow-up to the 2011-2012 Policy Challenge.
 The Next Policy Challenge is a policy foresight exercise, focussed on the policy challenges that may face the United States over the coming decade as economic transformation, technological advancement, environmental change and social adaptation come together in powerful new ways.
